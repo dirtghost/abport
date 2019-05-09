@@ -1,1 +1,1 @@
-## Check me out @ [alisenboada.com](http://alisenboada.com/)
+Check me out @ http://alisenboada.com/
